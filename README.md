@@ -47,7 +47,7 @@ Cette politique peut etre mise a jour. Toute modification sera publiee a cette m
 
 ### 8. Contact
 
-Pour toute question : mmoukah@gmail.com
+Pour toute question : midfr.com@gmail.com
 
 ---
 
