@@ -4,8 +4,8 @@
 
 *Derniere mise a jour / Last updated: June 9, 2026*
 
-**Editeur / Publisher:** Mohamed Moukah
-**Contact:** mmoukah@gmail.com
+**Editeur / Publisher:** M Moukah
+**Contact:** midfr.com@gmail.com
 
 ---
 
