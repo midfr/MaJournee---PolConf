@@ -4,7 +4,6 @@
 
 *Derniere mise a jour / Last updated: June 9, 2026*
 
-**Editeur / Publisher:** M Moukah
 **Contact:** midfr.com@gmail.com
 
 ---
@@ -89,4 +88,4 @@ This policy may be updated. Any changes will be published at this same address.
 
 ### 8. Contact
 
-For any questions: mmoukah@gmail.com
+For any questions: midfr.com@gmail.com
